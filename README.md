@@ -1,0 +1,2 @@
+# ekzamen
+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
